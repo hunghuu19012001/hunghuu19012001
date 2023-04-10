@@ -1,4 +1,4 @@
-[![Jason Lengstorf has a lot of ideas.](https://resources.mindx.edu.vn/uploads/images/Source%20game%20code%20-%204.jp)](https://www.facebook.com/hunghn.1901)
+[![Jason Lengstorf has a lot of ideas.](https://resources.mindx.edu.vn/uploads/images/Source%20game%20code%20-%204.jpg)](https://www.facebook.com/hunghn.1901)
 
 # Hi, I'm Hữu Hưng Nguyễn 👋🏾 👩🏾‍💻
 
