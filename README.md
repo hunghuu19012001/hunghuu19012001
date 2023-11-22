@@ -1,4 +1,3 @@
-[![Jason Lengstorf has a lot of ideas.](https://previews.123rf.com/images/eladora/eladora0901/eladora090100243/4241570-painted-canvas-in-grey-color-as-background-art-is-created-and-painted-by-photographer.jpg)](https://www.facebook.com/hunghn.1901)
 
 # Hi, I'm Hữu Hưng Nguyễn 👋🏾 👩🏾‍💻
 
